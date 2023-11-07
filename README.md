@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @XxGamer11BoixX
+- 👀 I’m interested in coding and gaming.
+- 🌱 I’m currently learning how to code and create.
